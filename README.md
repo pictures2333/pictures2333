@@ -1,3 +1,3 @@
 🌽 A Sukonbu / FBK the cutest fox
 
-Personal Website: pictures2333.github.io
+**[Starter]** Lv.0 Cyber Security Player - pictures2333
