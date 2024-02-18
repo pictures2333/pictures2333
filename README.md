@@ -1,3 +1,3 @@
 🌽 A Sukonbu / FBK the cutest fox
 
-**[Starter]** Lv.0 Cyber Security Player
+**[Dinner]** Lv.-1 Cyber Security Player
